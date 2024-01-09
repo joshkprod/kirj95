@@ -34,7 +34,7 @@ Ready to book a session or have questions? Feel free to reach out!
 
 **Phone:** (514) 969-9195
 
-Connect with me on [Instagram]([link-to-instagram](https://www.instagram.com/joshkirschner_/)) and [Facebook](link-to-facebook) for the latest updates and behind-the-scenes moments.
+Connect with me on [Instagram](instagram.com/joshkirschner_) and [Facebook](link-to-facebook) for the latest updates and behind-the-scenes moments.
 
 I look forward to capturing your memories and creating beautiful stories together!
 
