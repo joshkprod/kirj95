@@ -30,9 +30,9 @@ Check out my [portfolio](link-to-portfolio) to see examples of my work. Each pho
 
 Ready to book a session or have questions? Feel free to reach out!
 
-**Email:** john@example.com
+**Email:** kirschnerjosh@gmail.com
 
-**Phone:** (123) 456-7890
+**Phone:** (514) 969-9195
 
 Connect with me on [Instagram](link-to-instagram) and [Facebook](link-to-facebook) for the latest updates and behind-the-scenes moments.
 
